@@ -2,6 +2,9 @@
 
 Olá! Bem vindo ao meu livro de receitas :cookie:
 
-- Estrogonofe de frango :chicken:
+- Strogonoff de frango :chicken:
+
+- Pavê
 
   ​
+
